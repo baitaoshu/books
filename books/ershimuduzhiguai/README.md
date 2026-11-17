@@ -4,7 +4,7 @@
 
 > 以「九死一生」二十年见闻为线索，写官场、商界、洋场、家庭的种种怪状。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

@@ -4,7 +4,7 @@
 
 > 起自隋文帝灭陈，历隋末群雄、瓦岗起义、李唐开国，至安史之乱。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

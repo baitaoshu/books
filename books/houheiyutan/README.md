@@ -4,7 +4,7 @@
 
 > 收《前言》与《我的思想统系》两篇，自述厚黑学的来路。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

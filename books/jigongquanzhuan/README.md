@@ -4,7 +4,7 @@
 
 > 济颠和尚装疯卖傻、济困扶危、惩恶除霸，法术与公案交织。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

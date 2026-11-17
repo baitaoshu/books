@@ -4,7 +4,7 @@
 
 > 以武王伐纣为骨，写阐教、截教诸仙斗法破阵，姜子牙封神。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

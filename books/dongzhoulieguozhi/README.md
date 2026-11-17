@@ -4,7 +4,7 @@
 
 > 自周宣王童谣起，历春秋五霸、战国七雄，至秦统一六国。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

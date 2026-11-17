@@ -4,7 +4,7 @@
 
 > 北宋末年以宋江为首的一百单八将聚义梁山、受招安后征辽平寇。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

@@ -4,7 +4,7 @@
 
 > 以金雯青与傅彩云的姻缘为线，串联同治至甲午前后的朝野掌故。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

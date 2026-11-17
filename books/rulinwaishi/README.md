@@ -4,7 +4,7 @@
 
 > 清代长篇讽刺小说代表作，写科举制度下文人的众生相。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

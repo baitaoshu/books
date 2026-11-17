@@ -4,7 +4,7 @@
 
 > 以贾、史、王、薛四大家族兴衰为背景，写贾宝玉与林黛玉、薛宝钗的爱情悲剧。中国古典小说的巅峰。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

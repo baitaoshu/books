@@ -4,7 +4,7 @@
 
 > 东汉末年至西晋初年近百年风云，以魏、蜀、吴三国兴亡为主线。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

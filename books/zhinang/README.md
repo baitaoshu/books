@@ -4,7 +4,7 @@
 
 > 谋略总集，收先秦至明代智谋故事一千余则，每则附评语。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

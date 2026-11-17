@@ -4,7 +4,7 @@
 
 > 梁陶弘景注本，讲游说、揣情、驭人之术。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

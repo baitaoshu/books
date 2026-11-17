@@ -4,7 +4,7 @@
 
 > 唐敖等人海外游历的奇闻异事，后半部写众才女赴试的百女图。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

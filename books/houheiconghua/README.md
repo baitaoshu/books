@@ -4,7 +4,7 @@
 
 > 《厚黑学》的完整续编，把「面厚心黑」推成一套史观。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

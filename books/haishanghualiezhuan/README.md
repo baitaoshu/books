@@ -4,7 +4,7 @@
 
 > 以吴语对白写上海租界青楼中的人情往来与世态炎凉。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

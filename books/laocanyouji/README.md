@@ -4,7 +4,7 @@
 
 > 江湖医生老残的游历见闻，暴露晚清官场黑暗，尤以「清官」之恶为深刻。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

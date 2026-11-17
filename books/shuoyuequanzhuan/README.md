@@ -4,7 +4,7 @@
 
 > 岳飞从岳母刺字到风波亭遇害，及岳雷扫北报仇。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

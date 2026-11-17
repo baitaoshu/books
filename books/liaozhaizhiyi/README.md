@@ -4,7 +4,7 @@
 
 > 文言短篇小说集，近五百篇，多写狐鬼花妖、科场与官场。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

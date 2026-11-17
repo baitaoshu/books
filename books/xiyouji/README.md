@@ -4,7 +4,7 @@
 
 > 孙悟空随唐僧西天取经，一路降妖伏魔，历经九九八十一难。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

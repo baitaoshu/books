@@ -4,7 +4,7 @@
 
 > 写给父母、诸弟与子侄的家书选编，讲治学、修身、齐家。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

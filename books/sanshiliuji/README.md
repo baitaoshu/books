@@ -4,7 +4,7 @@
 
 > 分胜战、敌战、攻战、混战、并战、败战六套，每计附按语。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 

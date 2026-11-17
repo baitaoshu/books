@@ -4,7 +4,7 @@
 
 > 以连缀短篇写尽捐官、候补、贿赂、倾轧的官场生态。
 
-在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../README.md)
+在线阅读：[baitaoshu.com](https://baitaoshu.com) · 返回[书库总目](../../README.md)
 
 ---
 
